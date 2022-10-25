@@ -1,0 +1,2 @@
+# projeto27
+qwertyuiopasdfghjklçzxcvbnm
